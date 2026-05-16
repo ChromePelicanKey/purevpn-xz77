@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with smart PureVPN Connector | double-VPN + simultaneous-connections, the #1 connector. Includes double-VPN and simultaneous-connections for a
 
 
 
